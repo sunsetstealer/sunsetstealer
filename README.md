@@ -19,7 +19,7 @@
  
  
  
-  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀   ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  <img width="120" height="142" alt="Yuri Briar" src="https://github.com/user-attachments/assets/97b917af-acfe-4493-90c2-e7a3b4a75dbc" />
+  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀   ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  <img width="90" height="142" alt="Yuri Briar" src="https://github.com/user-attachments/assets/97b917af-acfe-4493-90c2-e7a3b4a75dbc" />
 
  ⠀ 
  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ 
